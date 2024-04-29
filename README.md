@@ -1,6 +1,6 @@
 # Geomtrydashcheats-v2
 
 
-# V2 HERE: https://drive.google.com/drive/folders/1-PDvSAlLIKxfPP-x73V5mIofjXZwvZan?usp=drive_link
+# V2 HERE: https://www.mediafire.com/file/u0983ta1a3epwsq/Geomtry-Dash-V2.1.zip/file
 
-# CHEATS HERE: https://drive.google.com/drive/folders/1XxJqpA_mc0z4tM5V8ZMAK-DMWry0ufSS?usp=drive_link
+# CHEATS HERE: https://www.mediafire.com/file/uk9hqnak7v2c9i8/GD-Cheats.zip/file
