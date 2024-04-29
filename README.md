@@ -1,4 +1,6 @@
 # Geomtrydashcheats-v2
 
 
-# CHEATS HERE: https://drive.google.com/drive/u/1/search?q=owner:schoolaccfortest%40gmail.com
+# V2 HERE: https://drive.google.com/drive/folders/1-PDvSAlLIKxfPP-x73V5mIofjXZwvZan?usp=drive_link
+
+# CHEATS HERE: https://drive.google.com/drive/folders/1XxJqpA_mc0z4tM5V8ZMAK-DMWry0ufSS?usp=drive_link
